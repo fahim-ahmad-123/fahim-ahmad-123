@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Machine Learning, Python, Power BI, MySQL, Deep Learning and lot more**
 
-- 📫 How to reach me **https://www.linkedin.com/in/fahim-ahmad-404ab9297**
+- 📫 How to reach me **fahimahmad0048@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
